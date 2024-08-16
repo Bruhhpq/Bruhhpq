@@ -1,0 +1,3 @@
+Olá, meu nome é Bruna, tenho 17 anos e estou cursando informática. Uma disciplina que aprecio bastante é Filosofia, pois ela nos provoca a refletir sobre diversos assuntos e nos dá a oportunidade de expressar nossas opiniões.
+Atualmente, estou trabalhando em uma imobiliária e tenho aprendido muitas coisas novas. Por exemplo, estou aprendendo a calcular valores de imóveis e contas, além de descobrir ruas e termos que nunca havia escutado antes (kkkk). Sou muito grata por esta oportunidade de trabalho.
+Planejo ingressar na faculdade de Medicina Veterinária, com a intenção de me especializar na área de cirurgia. Tenho uma grande paixão pelos animais e desejo, futuramente, poder contribuir significativamente para o bem-estar deles.
